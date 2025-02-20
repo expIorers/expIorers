@@ -1,8 +1,10 @@
 ![475b5cba](https://github.com/user-attachments/assets/855a9c66-7278-4659-92c6-3b9db05cf630)
 
-my name is **Ena**, i go by either he/him or **it/its**
+my name is **Ena**, i go by either he/him or  **it/its**
 
 im Apart of a system and im a fictive.
+
+please bully me for my dirty room in whispers I need motivation 
 
 Im also a selfshipper. i really like spinel. im very normal about spinel. i love spinel. 
 ![obraz](https://github.com/user-attachments/assets/210a8a28-fffc-41a7-a0e9-efc9938be39c)
