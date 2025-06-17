@@ -10,3 +10,9 @@ most of the time im looking somewhere else so please whisper if you wanna intera
 im not looking to argue with anyone anymore if i look familiar no i dont
 
 im normal please im normal 
+
+I don't mind c+h but I might not engage with you
+
+also I don't do RP. 
+
+I'm taken
