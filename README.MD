@@ -4,9 +4,9 @@ its acc is usually used by Ena but whatever.
 
 i will remake later
 
-keep in mind i have some kind of superiority complex 
 
 most of the time im looking somewhere else so please whisper if you wanna interact 
 
 im not looking to argue with anyone anymore if i look familiar no i dont
 
+im normal please im normal 
