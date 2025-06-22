@@ -1,3 +1,4 @@
+# I don't actually have a touch trigger I just enjoy ragebaiting
 # not affiliated with any other kuroha fictives
 
 https://normalsnake.straw.page/
